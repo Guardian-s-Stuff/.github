@@ -1,1 +1,1 @@
-All of Guardian's code goes here. Dashboard code and bot code.
+All of our bot codes go here, so enjoy!
