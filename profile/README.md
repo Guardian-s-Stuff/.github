@@ -1,1 +1,1 @@
-All of our bot codes go here, so enjoy!
+Goodbye everyone. Not much time for me left here. @StormyGalaxy, enjoy being owner.
